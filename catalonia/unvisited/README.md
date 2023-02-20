@@ -1,7 +1,0 @@
-# Unvisited
-
-## Figueres
-
-## Montserrat
-
-## Tarragona
